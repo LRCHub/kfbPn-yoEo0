@@ -1,0 +1,92 @@
+# KANDYTOWN – Prove（feat. GOTTZ、KEIJU、MUD）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+＜ Verse 1 / Gottz ＞
+Studio で火を噴く 俺の Groove
+T.O.K.Y.O. 刻む Livin' proof
+2度目は No Lady know このジョブ
+無駄な勘ぐりならいらない Stop
+Don't need more 君以外
+別に要らないよ
+暇な時にまた Text me
+Studio で火を噴く 俺の Groove
+T.O.K.Y.O. つなぐ KANDYTOWN crew
+＜ Verse 2 / KEIJU ＞
+毎日付ける首元 金の Jewel
+空飛ぶヘリ 大丈夫 I'm doin' well
+ペン先に Power 待つ Heaven or
+hell
+まず Worry about yourself
+諦めは負け
+yea, wassup next 何回かill
+でも Bounce back 遊べ
+外に出てまだ学べる
+カモミールでも飲んで心落ち着ける
+算数は苦手でも金は数えれる
+I'm the man
+やらねえことはやらねえ
+馬鹿見る
+昔言われてた言葉飲み込める
+馬鹿見たのはお前じゃん Look at
+me now
+What ya think 東京をレペゼン
+てっぺん東京タワーより更に上でケ
+ンケン
+貞治みたいな片足 不安定
+うまくやり 奴等と待ち合わせ
+目指す場所へ So fxxk what they
+say
+＜ Hook / MUD ＞
+Wake up in da morning and
+sippin' on da coffee
+In da Tokyo city just chillin'
+with my homies
+Go to get some money for my
+family
+you know it
+We're still player, I don't fxxk
+it your bitches
+＜ Verse 3 / MUD ＞
+見上げる空 この先何を手に
+Do what you gotta do
+過ぎ去る過去を背に
+Unstoppable time it is automatic
+Tokyo city baby 常に Illmatic
+決して忘れない大切なこと
+冬を越え Survive 夏にまた会おう
+千鳥足の Bro' 片手持つ Bottle
+光追いかけて差し込んだ Shadow
+Livin' life so hard 求める
+Gorgeous
+失敗して放りゃ 慣れたもんだな
+昔を Throw back 仲間と Blow up
+今こそ Show time ma' fxxker
+KANDYTOWN Keep it real
+Comin' up, I get fly, Smoke
+B.I.G
+Bitch より手伸ばす MIC
+血走る目で明日のこと Imagine
+City to da City 抜け 西から東
+＜ Hook / MUD ＞
+Wake up in da morning and
+sippin' on da coffee
+In da Tokyo city just chillin'
+with my homies
+Go to get some money for my
+family
+you know it
+We're still player, I don't fxxk
+it your bitches
+＜ Verse 4 / Gottz ＞
+今でも地元の仲間と Grow まだ Go
+死ぬまで止まらない鼓動 I got
+flow
+街に風を吹かす音 I got soul
+愛の意味を知った場所
+今でも昨日のことのよう so
+あの人と遊んでた T.O.K.Y.O.
+過去のことは変えられないからもう
+俺たちは向くしかないんだ前を
+```
