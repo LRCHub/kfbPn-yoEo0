@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Prove（feat. GOTTZ、KEIJU、MUD）",
+  "base_artist": "KANDYTOWN",
+  "createdAt": "2026-02-14T04:38:12.619206Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Prove",
+      "artist": "KANDYTOWN, Gottz, KEIJU, MUD",
+      "has_synced": false,
+      "path": "select/pl_01_Prove_KANDYTOWN,_Gottz,_KEIJU,_MUD.txt"
+    }
+  ]
+}
